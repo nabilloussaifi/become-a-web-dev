@@ -50,7 +50,7 @@
 
 ## <u>*The fears I might have*</u>
 1. Too much to learn on a short time.
-2. Didn't find some answer by miself.
+2. Didn't find some answer by myself.
 
 &nbsp;
 
